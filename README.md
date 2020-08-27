@@ -11,4 +11,4 @@ Criador do UX/UI e Codificacao do Site:
 
 Criador do Aplicativo 
 
-📫 danilopolastri.ti@gmail.com 
+📫 cavbrcleg@gmail.com
